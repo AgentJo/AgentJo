@@ -1,5 +1,7 @@
 How in the 11 war crimes did you find this page?
 
+# Follow @cegredev he is much cooler than me
+
 - 👋 Hi, I’m @AgentJo
 - 👀 I’m interested in making games and music
 - 🌱 I’m currently learning how to make games and music
